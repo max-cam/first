@@ -7,4 +7,5 @@ Hello World
 2026 7 22 inverse cramer hit   
 2026 7 23 kimi good  
 2026 7 24 inverse cramer hit again  
-2026 7 25 final wisdom tooth peaking out
+2026 7 25 final wisdom tooth peaking out  
+attention is all u need
