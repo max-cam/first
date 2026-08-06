@@ -15,4 +15,5 @@ f
 F  
 2026 7 31 citadel clutched up  
 1st of the month  
-btc cold wallet hack
+btc cold wallet hack  
+BUYING YEN(IMMATERIAL VALUE) DOES NOT HELP JPN(IN NEED OF MATERIAL VALUABLES) 
