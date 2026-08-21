@@ -22,4 +22,5 @@ BUYING YEN(IMMATERIAL VALUE) DOES NOT HELP JPN(IN NEED OF MATERIAL VALUABLES) AT
 dam
 dam
 fuck  
-temp hot
+temp hot  
+lok in create a billy
